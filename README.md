@@ -1,1 +1,0 @@
-# Test-task-for-customer-service-analysts
